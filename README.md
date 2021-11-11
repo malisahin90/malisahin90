@@ -1,0 +1,1 @@
+- 👋 kod yazıyorum kardeşim kalabalık yapma
